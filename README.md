@@ -1,4 +1,13 @@
-### Hi there 👋
+
+🦊🦊🦊🦊🦊🦊 ｺﾝｺﾝｺﾝｺﾝ…
+
+🦊 < ｺ〜〜〜ﾝ
+
+
+🦊🦊🦊🦊！！！！
+
+🦊💕🦊💕🦊💕🦊💕🦊💕
+
 
 <!--
 **noppefoxwolf/noppefoxwolf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
