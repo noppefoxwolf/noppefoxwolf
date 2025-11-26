@@ -1,4 +1,4 @@
-![](https://github.com/noppefoxwolf/noppefoxwolf/blob/master/banner.png)
+![](https://github.com/noppefoxwolf/noppefoxwolf/blob/master/banner-v2.png)
 
 <p align="center">
 <a href="https://twitter.com/noppefoxwolf">
